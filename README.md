@@ -1,2 +1,0 @@
-# Aplicacioneswebutn
-UniversidadTecnologicaNezahualcoyotl
